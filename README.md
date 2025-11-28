@@ -7,5 +7,9 @@ CC 1038359832
 
 Ingenieria Industrial - Universidad de Antioquia.
 
+Enlace video
+
+https://youtu.be/CkzDuyEGYqc
+
 Usuario Kaggele : yeissondavidmanrique
 
